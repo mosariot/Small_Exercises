@@ -1,0 +1,1 @@
+Some small personal exercises
